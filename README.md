@@ -1,3 +1,3 @@
 # landing-page
 
-Photo by QUI NGUYEN: https://www.pexels.com/photo/bi-u-t-ng-phu-yen-2-27834823/
+Photo by Regine Baeker: https://www.pexels.com/photo/black-and-white-new-york-city-skyline-at-night-28543006/
